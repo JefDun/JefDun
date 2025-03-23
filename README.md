@@ -7,7 +7,7 @@
 - ⚡ Fun fact: coding is an artform. until you accept you have to work on your artistic skill, you will remain a pen-pusher equivalent. I am mostly lost when initially interested.
 - ▐▀▀▀ " " " ' '  Zoom in, Focus, Take Aim & hit your prefered Targets, Reap your rewards.
 - Rewards are = to efforts exerted.
-- ctrl+F5 this page ppl - Have a great lookout on today.
+- Ctrl+F5 this page ppl - Have a great lookout on today.
 
 https://github.com/user-attachments/assets/dc094f21-9605-4d14-86fc-2d763f9eeaf2
 
