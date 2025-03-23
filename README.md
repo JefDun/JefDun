@@ -9,6 +9,7 @@
 - Rewards are = to efforts exerted.
 
 https://github.com/user-attachments/assets/dc094f21-9605-4d14-86fc-2d763f9eeaf2
+
 THANK YOU INTERNET
 <!---
 JefDun/JefDun is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
